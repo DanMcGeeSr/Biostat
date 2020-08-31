@@ -1,3 +1,3 @@
 ## Welcome to the Biostat Page
 
-$\beta_1
+$\beta_1$
