@@ -17,6 +17,8 @@ mcgee.dan41@gmail.com
 
 [Publications](https://scholar.google.com/citations?hl=en&user=_J0H3wgAAAAJ)
 
+[Home](https://danmcgeesr.github.io/Biostat/)
+
 
 					
 					
