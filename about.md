@@ -15,6 +15,8 @@ MHS and PhD in Biostatistics: The Johns Hopkins University
 
 mcgee.dan41@gmail.com 
 
+[Publications](https://scholar.google.com/citations?hl=en&user=_J0H3wgAAAAJ)
+
 
 					
 					
